@@ -1,0 +1,1 @@
+I have learned how to write HTML code and CSS code. I am enjoying learning how some of the computer things work. I also enjoy being with my friends. I dont really like absolute position but it is not that bad. I feel good at writing css and flex box. I fell bad about some of flex box. I need to work on nesting my HTML.
