@@ -1,0 +1,1 @@
+This year is rough. I have junior english which is wicked she just likes to tourture kids. I have been extra stressed becuase I have had no time to do any of my homwork becuase of my driving school. Which I will get my permit on monday. Thank god Now I can drive anywhere if I'm good at it. I'm definetly better than my brother thats for sure.
