@@ -1,1 +1,0 @@
-I'm enjoying this class it's pretty fun, but I heard Javascript is evil. All my other classes are fine i don't hate them. I need to improve on everything.
