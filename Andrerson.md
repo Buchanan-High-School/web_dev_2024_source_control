@@ -1,0 +1,1 @@
+I have learned alot about making code and correctly putting it together without it destoroying itself from the inside out. I have learned about flex box and how to use it. I dont like flex box.
